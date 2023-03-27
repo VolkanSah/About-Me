@@ -7,4 +7,4 @@ I look forward to continuing my journey and learning new technologies and skills
 
 Thank you for your interest and support!
 
-:smirk: **I am Batman** 
+ :muscle: **I am Batman** :smirk:
